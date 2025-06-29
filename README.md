@@ -1,2 +1,2 @@
-# Leverage-Master
+# Leverage-Master-Pro
 Manage Your Trading Risks Genuinely...
